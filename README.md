@@ -1,1 +1,0 @@
-# korindaniil.github.io
